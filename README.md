@@ -112,8 +112,8 @@ I'm **Krishna Singh**, an Electronics & Communication Engineering student passio
 ## 📬 Contact
 
 - GitHub: https://github.com/krishna03-23-085
-- LinkedIn: *(Add your LinkedIn profile here)*
-- Email: *(Add your professional email here)*
+- LinkedIn: www.linkedin.com/in/krishna-singh-b1ba0336b
+- Email: krishna2005singhh@gmail.com
 
 ---
 
